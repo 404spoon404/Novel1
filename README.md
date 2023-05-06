@@ -1,8 +1,9 @@
 # Novel1
 
-Writing system:
+## Writing system:
   Debian, vim
-  
-Vim Plugins:
+  Markdown
+
+## Vim Plugins:
   vim-plug
   Goyo
