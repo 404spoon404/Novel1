@@ -1,2 +1,8 @@
 # Novel1
-The first novel to be written by me
+
+Writing system:
+  Debian, vim
+  
+Vim Plugins:
+  vim-plug
+  Goyo
