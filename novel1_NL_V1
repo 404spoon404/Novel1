@@ -1,0 +1,255 @@
+ Ze was kapot. De motor lag in onderdelen op het zeil. Ik keek om mij heen behalve de tent en de motor was verder geen bewijs van menselijkheid te zien. Een vlakte met nauwelijks verschil in hoogte en kleine bosjes. Bijna windstil. Draaide mijn stuk je voor stukje om. Elke halve stap langzaam de horizon scannend. Niets, geen masten, rook of wat dan ook. Het gras en de groepjes bomen. In de verte dichtere bomenrijen. Na twee rondjes besloot ik dat niet opeens iets zou verschijnen. 
+
+Het zeil was warm toen ik erop ging liggen. Mischien toch tijd om de comms weer tevoorschijn te halen. Bellen voor redding. De zon verwarmde mijn huid. Het was eigenlijk nog geen noodgeval. Bellen kan altijd nog. Eerst maar wat eten. Uit de zadeltassen pakte ik het brood dat ik nog bewaard had. Twee dagen oud en hard maar nog lekker. Terwijl ik in het droge brood beet keek ik naar de verzameling onderdelen voor mij op het zeil. De motor had al even kuren. Het was al een week duidelijk dat niet alle paarden meer naar het achterwiel gingen. De laatse dorpen hadden geen experts en ik had niet het idee dat de handymen veel meer konden fixen dan ik. 
+
+Gisteren was het opeens niet alleen het vermogen meer. De start kostte een paar keer trappen. Toen de motor eindelijk pakte was de rook erg blauw. Ik dacht nog dat het met wat opwarmen wel beter zou gaan maar de heledag was er een gesputter dat mijn gedachten verstoorde. Gelukkig had ik geen beklimmingen. Het pittige was er duidelijk wel af. Ik stopte de dag op tijd en na het opzetten van de tent keek ik de afstelling na maar kon ik geen problemen herkennen. Met nog twee dagen naar het volgende dorp zou ik het met rustig rijden wel redden. Not, dus. Op dit stukje weg was het achterwiel opeens gestopt met draaien. Vasgelopen haalde het alle grip weg en liet het de motor en passagier onderuit glijden. Bestuurder kon je me op dat moment niet noemen. 
+
+Regel 1 van motor rijden gebroken kon ik mijn machine weer rechtop zetten. Midden op de weg op de zijstandaard, geen goede plaats voor een nieuw plan. Met het vasgelopen wiel was alleen het van de weg afkomen al een uitdaging. Ik moest mijn bagage afpakken en aan de kant leggen voor ik het machientje half tillend, half slepend aan de kant kreeg. Als een auto langs zou komen maakten de sporen in ieder geval duidelijk dat mijn stop hier niet vrijwillig was. 
+
+Met de motor aan de kant van de weg maakte ik het zell los en met weer wat gesleep kreeg ik het scootertje erop. De eerste controle was de rem. Geen problemen daar. De motor en de versnellingsbak waren de overgebleven daders. Versnellingsbakken heb ik nooit begrepen dus eerst maar de motor proberen. Uit het frame en de cilinder losmaken. Het was meer geweld nodig dan ik gewend was. De zuiger muurvast in de cilinder. Met de zuiger bevrijd was het wel duidelijk waar het probleem zat. De stukjes metaal bovenop de zuiger bleken de pakking te zijn. Oorzaak gevonden. 
+
+In stukjes zou de motor in ieder geval niet meer werken. Ik pakte een doek uit mijn bagage en begon voorzichtig de stukjes metaal op te vegen. In een paar minuten had ik alle restanten weggehaald. Ik kon niet dieper in het blok kijken dus hoopte ik maar dat er geen deeltjes dieper gevallen waren. In de volgende stad kon ik de olie vervangen. Met de delen zo schoon als ik ze kreeg kon ik de motor weer in elkaar zetten. 
+
+“Deze motor is onverwoestbaar.” De handelaar wees naar het motortje dat onderin het schootertje zichtbaar was. De motor zag er goed uit, voor zover ik kon inschatten. De schuur stond vol met allerlij soorten off road motoren. Dikke banden, hoog op de wielen het soort machine dat Tr4v3l3r gebrluikte tijdens zijn reis. De scooter die de man achteruit de winkel tevoorschijn had gehaald leek in niets op die machine. “Miku, probeert hij mij op te lichten” Het antwoord kwam na een korte pauze. “De tekenen wijzen op eerlijkheid” Een kortaf antwoord. Nog boos dus. Ik keek zelf maar eens goed naar de handelaar. 
+
+Een oude blauwe overall met olievlekken geen shirt daaronder zichtbaar. Zijn gezicht leek vriendelijk genoeg hoewel het meeste verborgen ging onder zijn dikke zwarte baard. Hij keek terug, vriendelijke ogen. De winkel lag in de rand. Een rommelige oude schuur, in niets leek het op een dealer voor nieuwe glimmende motoren. Ik had aan de rand alleen maar dit soort schuurtjes gevonden. Dit was de eerste waar de handelaar iets tevoorschijn had gehaald in plaat van mij te proberen de winkel uit te jagen. 
+
+De scooter was niet lelijk. Het frame en stuur waren donkerblauw. De plastic, echt plastic onderdelen een oud wit. Bijna geel geworden. Een ronde koplamp, ronde richtingaanwijzers eigenlijk wel schattig. Dat was ook het probleem, waarom zou ik niet op een van de stoere grootgewielde motoren kunnen rijden? 
+
+De handelaar zag mijn twijfel. “Kijk,” Hij leek iets in te slikken, “Je wil de route rijden, toch?” “Hebt de sends gezien en denkt dit wil ik ook.” Ik knikte. “Je bent de derde die ik deze week zie. Ze gaan voor de dikste en snelste machine die ze kunnen betalen. Op het eerste niet schoongemaakte stukje weg gaan ze onderuit en krijgen hem niet meer overeind.” Hij zuchtte. “Ik mag ze dan ophalen en ze gaan weer naar papa en mama terug.” Ik had inderdaad gehoord dat de handelaars goed verdienden aan de starters die al snel weer terug kwamen en de nu 2e hands motor verkochten. 
+
+“Deze machien ziet er mischien niet stoer uit. Ze rijd al jaren, ik heb zelf de brandstofaanvoer aangepast voor biozine. Vraag je partner maar om mee te kijken.” Miku hoorde het en opende haar ogen “Iemand die mijn mening wel kan waarderen” Kwam zachtjes bij mij binnen. De man knielde bij de motor er wenkte mij om erbij te komen. Ik en Miku kwamen dichterbij. "Weet je waar je naar moet kijken”” vroeg hij. “Het frame, kwaliteit van de banden, slijtage op de onderdelen” Fluisterde Miku en ik herhaalde het. “Het frame is goed, niet onbeschadigd, maar dat ga je ook niet vinden. Opvoeren zou een risico zijn maar met de gewone snelheden zit dit wel goed.” Hij ging door over de details van de machine. Ik liet Miku verder luisteren en kijken naar wat hij aanwees. Het scootertje was schoon. Alle onderdelen glommen. Aan de binnenkant van het scherm hing een haakje voor een boodschappentas. De naambadge onder het zadel was rood met oud wit. Super Cub, ik kon het super nog niet herkennen. 
+
+Ik merkte dat de man mij aankeek en hij en Miku op mijn reactie wachtten. De uitleg was blijkbaar voorbij. “Miku?” “Hij heeft gelijk.” Het kwam eruit als een bekentenis. “Dit werkt wel.” Ik knikte ze, was er duidelijk niet blij mee dus dit was het beste wat ik ging krijgen. “Kan ik een proefrit maken?” vroeg ik. De man keek moeilijk.  “Heb je een rijbewijs?” Ik had de toetsen thuis al gemaakt en afgereden voor ik op pad ging “En een helm?” Die had ik nog niet. Het plan was om alles in een keer te kopen. Hij stond op en liep door naar een deur achterin de schuur. “Roze?” “Ik haat alles wat roze is” Hij was bijna meteen terug met in zijn handen een helm. De helm was open aan de voorkant, niets zoals de offroad helmen die ik online gezien had. Hetzelfde gebroken wit als de kappen van de scooter met een blauwe en een rode streep over de bovenkant. Aan de voorkant zaten een soort knoppen. Je mag deze lenen. 
+
+Hij duwde de scooter naar buiten. Daar kreeg ik korte uitleg over de bediening en de versnellingen. “Versnellingen?” Dit pre hybride model had nog versnellingen. In de lessen hadden de machines geen versnellingen gehad. “Wees blij dat dit geen koppeling heeft” grijnsde hij. “Start hem maar” Ik pakte de sleutel aan deed hem in het sleutelgat, Er gebeurde niets en in de uitleg zat geen startknop. Miku kwam mij te hulp, “Draai aan de sleutel” het lampje in de snelheidsmeter ging aan.Verder gebeurde er niets. “Aan de achterkant van de motor zit een hendel die je kan uitklappen.” Ik vond de hendel met een rubber bovenkant. "Je trapt hem aan” In mijn benen kon ik voelen wat ze bedoelde. Ik ging op kickstart staan en duwde voorzichtig naar beneden. Het motortje maakte een ratelend geluid maar verder gebeurde er niets. 
+
+“Denk aan het gevoel” zei Miku. Ik concentreerde mij op het gevoel in mijn benen. Dat was harder duwen dan ik verwacht had. Ik probeerde het nog een keer en ging bijna op de kick staan. Het motortje begon te ploffen. “In twee keer, we hebben een natuurtalent” zei de monteur lachend. Het klonk niet of hij mij aan het uitlachen was. Miku gaf door dat ik de machine van de middenbok kon halen door vooruit te duwen. Ik ging zitten en duwde de versnelling naar beneden met mijn linkervoet. Een luide klik en een schok. Voorzichtig draaide ik aan het gas. Het scootertje begon te rijden. “Voeten op de pegs” Miku leek plezier te krijgen in mij coachen. Ik tilde mijn voeten voorzichtig op en was nu echt aan het rijden. 
+
+Keer op keer ging ik op de kickstand staan. Het lampje in de snelheidsmeter was aan, de motor ratelde maar ik voelde het pakmoment niet. Een knal, rook maar niet het zacht ploffende geluid waar ik nu zo aan gewend was. Keer op keer bleef ik het proberen. Ik voelde het zweet onder mijn oksels en de zon branden. Dit ging hem niet worden. 
+
+Het was inmiddels middag en de zon brandde. Ik pakte de zonnebrand uit mijn bagage en deed een dikke nieuwe laag op mijn armen en gezicht. Daarna pakte ik alles weer in, vouwde het zeil op en pakte mijn bagage weer op. Het was nu zonnig weer maar ik had al gemerkt hoe snel dit kon veranderen. Beschutting van de zon en van ander weer was nu even de prioriteit. 
+
+Als ik een stukje terug ging kon ik schuilen in een bomenrij. Verder op zag ik echter meer bomen, eigenlijk een bosje. De kans dat ik daar beschutting zou vinden leek mij groter. Misschien was er aan de andere kant van het bos iets van beschaving zichtbaar. Met mijn bagage op de motor, de jas erover geen gehangen en mijn helm aan het zadel begon ik met duwen. 
+
+De weg was geasfalteerd, een tijd geleden. Zand en boomwortels maakte het duwen niet gemakkelijk. De brommer aan het rollen krijgen was lastig maar midden op de weg rolde het wel door. Ik duwde met twee handen tegen het stuur terwijl ik naast de machine liep. De hobbels van de boomwortels hadden het asfalt omhoog geduwd en gebroken. Elke keer dat ik bij een richel aankwam moest ik even tegen het stuur hangen om het voorwiel erover te krijgen. Het achterwiel volgde dan wel. 
+
+De zon bleef ongenadig branden, halverwege had ik er even helemaal genoeg van. Mijn armen verzuurd en mijn benen zwaar. Ik stuurde naar de kant van de weg en hees de motor weer op de middenbok. Het water had ik per ongeluk onder de jas, het zeil en een hoop andere spullen in de tas gedaan. Ik pakte de spullen weer af en haalde een fles uit de tas. 
+
+Ik moest maar zuinig aandoen met het water. De omgeving zag er niet droog uit maar ik had nog geen riviertje of meer gezien. Misschien was er ook wel water in het bos te vinden. Met het tempo dat ik nu maakte was het nog ongeveer een half uurtje lopen voor ik onder de bomen zou zijn. Ik nam kleine slokjes water terwijl ik mijn moed verzamelde. Ik pakte alles weer op met de fles water boven op mijn spullen maar onder mijn jas om het tegen de zon te beschermen. 
+
+Weer verder duwend begon ik wat tempo te maken. De weg leek iets af te lopen en de wielen rolde over het oppervlakte. Nu kon ik echt even opschieten. Een wortel op de weg en mijn jas begon weg te glijden. Lanzaam zakte de spullen achterop opzij. Het gewicht hing naar rechts en ik kon alleen maar aan het stuur hangen in een poging alles rechtop te houden. Voor de tweede keer op een dag viel de motor om. Ik wilde niet boven op mijn spullen vallen. Op het laatste moment sprong ik over de machine, struikelde en lande voorover met mijn gezicht en armen op het hete asfalt. 
+
+Voor de eerste keer die dag was ik blij dat geen andere mensen in de buurt waren die dit zagen. Steunend om mij onderarmen en knieën rolde ik eerst maar plat op mijn rug. Even blijven liggen. Mijn spullen en ik midden op de weg. De hitte van de weg begon al snel door mijn shirt heen te komen en maakte duidelijk dat blijven liggen geen optie was. Overeind komen lukte en ik strompelde naar de rand van de weg om in het hoogstaande gras te gaan liggen. Daar liggend begonnen de tranen. Pijn, de losse spanband en de afgelopen weken kwamen er in een keer uit. Waarom vonden mijn ouders dit goed? 
+
+Ik luister in mijn bed naar het praten van pap en mam. Ik herken de tonen en weet dat dit zo nog wel een tijdje door kan gaan. Als de muziek aan gaan weet ik dat ze niet willen dat Miku meeluistert. Het kan dus nog niet zo ernstig zijn. Net als ik dat denk begint muziek te spelen. 
+
+Waarom geloven ze me niet gewoon. Vandaag had ik alles voorbereid. Miku en ik hadden weer gekookt. Dit keer wat uitgebreider dan anders. De groentelasagne met verste groenten in de oven. De tafel mooi gedekt. Misschien had ik het wat overdreven. Maar we eten altijd aan de tafel en wij koken wel vaker. Toch had mam mij meteen vragend aangekeken toen ze na haar werk naar beneden kwam. 
+
+Pap zijn werk was tegelijk met de lasagne klaar. Hij kwam naar beneden en kon gelijk aan tafel gaan zitten. Ik zette de salade op tafel en hij schepte wat op terwijl ik de lasagne uit de oven haalde en die op het aanrecht zette om wat af te koelen. Mam had ook salade gepakt toen ik ging zitten en keek mij verwachtingsvol aan terwijl pap zijn eerste happen genomen had. Ik reageerde niet en deed salade op mijn bord. 
+
+“Hoe was jullie dag vandaag?” “Veel overleg” reageerde pap. “De nieuwe datastucturen vragen een andere aanpak en opzet van de systemen.” “Oh, waarom?” vroeg ik. “Heeft het ermee te maken dat jullie zoveel nieuwe data krijgen?” Pap keek op “Ja, precies. De invoer van data is toegenomen dus we moeten alles opnieuw sorteren” Hij klonk blij verrast. “Zoals je weet hebben we na de overname nog meer toegang tot de verschillende bronnen van gedrag” Ik knikte, hem nu stoppen zou niet helpen. Pap ging nog een tijdje door over zijn werk. “Ik moet de lasagne plakken, Miku zegt dat het nu wel genoeg is afgekoeld.” Ik stond op en pakte de ovenschaal van het aanrecht. 
+
+Voorzichtig zette ik de schaal op de onderzetters. “Pap, wil jij de lasagne snijden?” vroeg ik hem terwijl ik de ovenwanten uitdeed en naar hem uitstak. Hij pakte ze aan, deed er een op zijn linkerhand en pakte het mes. Terwijl hij de lasagne stak vroeg ik aan mam hoe haar dag was. "Wel goed niet veel bijzonders.” zei ze koeltjes. Ze hield haar bord bij zodat pap kon opscheppen. Ik probeerde het nog eens. “Iedereen zich gedragen?” Meestal leverde dit wel een reactie op. Vandaag niet. Pap schepte voor mij en zichzelf op en we zaten weer. 
+
+“Hoe was jouw dag?” vroeg mam. "Iets bijzonders, iets dat je wil vragen?” “We vandaag gewerkt aan de presentatie van school” Ik probeerde het zo neutraal mogelijk te zeggen. “Wat zouden jullie vinden als ik dit voorjaar met vriendinnen op vakantie ging?” Pap keek op van zijn bord. “We gaan toch altijd samen op vakantie? Je vindt het toch leuk dat wij tijd als familie doorbrengen?” “Ik ben al bijna zeventien” Ik probeerde volwassen te zeggen maar het kwam er toch een beetje uit als mijn zeurstem. “Ik zie jullie altijd al” En mislukt. Voor pap wat terug kon zeggen greep mam in. “De schoolpresentatie gaat over vakantieplannen?” De nadruk lag op school. “We moesten een project in de echte wereld bedenken.” Niet in de verdediging schieten dacht ik nog. “Het leek ons leuk om samen op pad te gaan, een laatste keer voor we aan de examens beginnen.” “Laten we de presentatie maar even afwachtten" zei mam. Pap wilde nog iets zeggen maar mam keek hem aan en hij hield zijn mond dicht. 
+
+Na het eten pakte mam de vaatwasser in. Ik ging naar mijn kamer voor de laatste voorbereidingen. Toen ik aan mijn bureau ging zitten opende Miku de monitors. Danielle was al online. “Hoi” “Hoi” zei ik terug. Ik schoof het Danielle venster naar rechtsboven en opende het presentatieprogramma op het hoofdscherm. “Heb jij het er al met je ouders over gehad” vroeg ze? Ik keek naar haar scherm. “Ik ben erover begonnen. Mijn moeder zei dat ze de presentatie wel zou afwachtten.” Ik zag haar knikken. “Mijn ouders vonden het wel een goed idee.” “Je hebt ze al verteld wat het plan is?” “Neehee, dat hadden we toch niet afgesproken.” Ze reageerde meteen op mijn toon. “Ik heb alleen maar gezegd dat ik wel samen met vriendinnen op vakantie wilde. Heb jij ze het plan verteld?” Esther en Jody kwamen op dat moment online en we gingen met de presentatie aan het werk. 
+
+Met de voorbereidingen voor elkaar zaten we klaar voor de presentatie. Om acht uur kwamen onze ouders en meneer Vermeer online. We hadden een studio als backdrop gekozen. Danielle en Esther stonden achter een desk en we hadden een graphic gemaakt met de motor van Tr4v3ll3r en de titel “een Reis een Avontuur”. Dit stond achter hen. Danielle begon meteen. “Vorig jaar reisde de vlogger Tr4v3ll3r met een motor door Old Europe. Zonder team liet hij zien dat iedereen dit kan doen.” Ik liet Miku de supercut starten. 
+
+We zagen Tr4v3ll3r. Een jongen van onze leeftijd voor ons. Om ons heen waren de gebouwen van de Belt. Een overlay liet de route vanaf de Belt omhoog door Old Europe en eindigend in Norsk. We zagen hem zijn spullen verzamelen. De planning. Zijn motor opakken en shots van hem rijdend. Terwijl het avontuur speelde keek ik naar de toeschouwers. De computer en Miku hadden ze in een halve cirkel voor de studio gezet. Ik zag mijn ouders op de bank zitten. De ouders van de anderen zaten op hun bank of apart van elkaar op stoelen. Meneer Vermeer en mijn ouders zaten in het midden. Iedereen leek met intresse naar het beeld te kijken. Ik draaide mij weer naar de studio. Het filmpje liep op het einde. 
+
+Ik maakte de studio langzaam zichbaar door de video. Esther begon weer te praten terwijl de laaste aftiteling langs scrolde. “Wij zijn bijna aan het einde van de tijd op deze school. Na dit jaar gaan we allemaal naar verschillende scholen.” Ze keek  het publiek aan zoals we geoefend hadden. “We willen graag een laaste avontuur met elkaar maken.”  In de graphic liet ik foto's van ons elkaar afwisselen. Danielle en Esther leidden ons publiek door ons plan. 
+
+Terwijl zij de verschillende onderdelen van het plan besproken liet ik de bijbehorende beelden zien. Ik ging staan. Tijd voor het showstuk. Danielle zei “Een van de belangrijkste onderdelen is de bagage die wij meenemen.” Ze fade out en een witte ruimte verscheen. In het midden van de kamer stond Jody. De kijkers keken nu door mijn ogen mee. “Jody, wat moeten wij meenemen?” Miku liet ondertussen de spullen die wij mee wilden nemen op de grond verschijnen. Samen met Jody liep ik rond tussen de spullen terwijl ze uitlegde wat wij allemaal zouden meenemen. 
+
+Nadat we de lijst hadden doorgenomen liet ik ons allemaal weer in de studio verschijnen. “Dit is ons plan” zei Jody. Danielle nam over. “En dit was onze presentatie, zijn er nog vragen.” Meneer Vermeer begon te klappen en onze ouders deden mee. Miku liet de nieuwsdesk verdwijnen en we stonden direct voor ons publiek. Deze keken elkaar aan. Een man in een stoel stak zijn hand op. Hij zag er even oud uit als mijn ouders. Maar waar mijn ouders in hun thuiskleren zaten had hij een nette broek en trui aan met een overhemd eronder. Niet zo lang en met niet zoveel haar op zijn hoofd. “De vader van Jody” zei Miku. “Dit was gewoon een presentatie voor school toch?” Jody keek moeilijk. Het was duidelijk dat zij haar ouders niet voorbewerkt had. “Jullie zijn toch niet echt van plan om zo op reis te gaan?” Danielle keek de groep rond, en gaf het antwoord. “We willen de reis echt maken. De opdracht was een project te bekenken dat wij echt wilden doen.” De vader van Jody leek meer te willen zeggen. Een vrouw op een van de banken was hem voor. In een sweatshirt en sweatpants met lang blond haar met krullen. Naast haar zat een man in even comfortabele kleding. “Vier meiden alleen op pad, weg van alle beschaving. Ik weet niet hoe slim dat is" zei ze terwijl ze naar de ander ouders keek. “De vader en moeder van Ester” zei Miku. Ik zette een stapje vooruit. Ik kon de ouders recht aankijken. Miku had het publiek iets omhoog gedaan, nu zaten de zittende mensen op dezelfde hoogte als wij.Ik keek haar aan. Ze knikte dat ik kon praten. “We moesten dit als schoolproject doen, maar we willen dit echt doen.” Zei ik, de moeder van  Esther aankijkend. “We zijn met zijn vieren en kunnen wel voor onzelf zorgen.” Mam onderbrak “Of ze dit mogen doen is iets wat wij beter met elkaar kunnen bespreken” Ik kon in haar toon niet horen of dit goed of slecht nieuws was. “Ik vondt de presentatie goed gemaakt. Daar hebben jullie volgens mij hard aan gewerkt.” Meneer Vermeer viel in. “Het project was het voorbereiden van een project om te doen. Laten wij het hebben over de presentatie.” 
+
+Meneer Vermeer vroeg controle, Miku gaf hem rechten. Hij liet het beoordelingsformulier verschijnen. Met het formulier gaven liet hij onze ouders feedback geven. Het viel mij op dat de ouders van Danielle niet veel zeiden. Ze zaten samen op een bank en leken na te denken. Ik dacht erover om een berichtje aan haar te sturen maar durfde dit zo niet te doen. Meneer Vermeer sloot het beoordelingsformulier. "Volgens mij hebben wij zo alles besproken, heeft iemand nog vragen of opmerkingen?” Hij pauzeerde even. “Dan wil ik jullie allemaal bedanken voor jullie aanwezigheid” Ik stak mijn hand op. Meneer knikte naar mij. “We willen dit echt graag doen en hebben alles uitgezocht. Wij kunnen best op pad met elkaar.” Meneer Vermeer reageerde als eerst. “De voorbereiding en jullie onderzoek zijn onderdeel van de opdracht. Als jullie die gegevens verzamelen en verwerken kan ik die, als jullie het goed vinden met jullie ouders delen.” Hij knikte of hij dit net bedacht had. “Dan kunnen jullie het daarover met je ouders hebben.” Ons aankijkend “Mag ik het met jullie ouders delen?” We knikten. “Dan doen we dat. En laten we het hierbij voor vanavond.” Hij pauzeerde nog even. “Allemaal nogmaals bedankt voor jullie aanwezigheid” De vergadering sloot en ik stond weer in mijn kamer. 
+
+De vensters van de anderen stonden nog open. Ik ging weer aan mijn bureau zitten. Een melding verscheen. “Een deelverzoek ontvangen.” Meneer Vermeer had meteen onze documenten klaargezet om met onze ouders te delen. Ik opende het verzoek en gaf toestemming om te delen. “Ik moet verder met andere dingen" Zei Danielle. “Laten we dit morgen op school verder bespreken.” We gaven aan dat dat goed was en ze ging offline. De anderen en ik keken elkaar aan. “Dan ga ik ook maar offline” zei Jody en verdween. Esther en ik waren nu over. "Volgens mij ging het best goed.” Zei ik. Esther knikte. “Dat denk ik ook.” “Je moeder leek niet heel blij” Esther haalde haar schouders op. "Zo doet ze. Ik kan haar wel ompraten.” Ze vroeg wat mijn ouders ervan vonden. “Ik weet het nog niet. Ik denk dat ze dat straks wel willen bespreken.” “Wil je met het verslag aan het werk?” Vroeg ze. Miku gaf me een nudge “Ik denk dat ik beter naar beneden kan gaan.” Esther zei dat ze nog wel even ermee aan het werk ging en ik ging offline. 
+
+Beneden waren pap en mam iets aan het kijken. “Goed gedaan” zei mam toen ik binnenkwam. Pap vroeg mij of ik de techniek had gedaan. Ik vertelde hem wat ik deed. “Kan je mij laten zien hoe je dat gedaan hebt?” Ik opende het programma en deelde het met hem. Zo keken we een tijdje naar de opzet van de presentatie. Hij gaf wat hints om het programma verder te besturen. Nadat we de presentatie nog een keer doorlopen hadden keken we samen nog iets tot het tijd voor mij was om naar bed te gaan. 
+
+Liggend in het gras haal ik mijn neus op. Dat helpt niet terwijl ik lig dus kom ik maar overeind. Mijn gezicht ziet er waarschijnlijk niet uit maar ik voel me wel wat beter. Mijn motor ligt op haar zijkant op de weg. Het ziet er zo zielig uit dat ik medelijden krijg. Ik sta op en loop erheen. Het bosje is niet vreselijk ver weg. Een voor een pak ik mijn bezittingen. Als eerste het zeil en het matje. Ik vouw het zeil uit en leg het verderop in het gras. Meteen mijn slaapzak erop zodat het niet wegwaaid. Dan haal ik de rest van de spullen van de motor. Ik kan nog niet bij de koffer onder de motor dus sleep ik de machine weer overeind. Als ik al mijn spullen verzameld heb op het zeil drink ik wat water en kijk ik of het zichtbaar is vanaf de weg. Niets te zien in het hoge gras. 
+
+De sleutels van de motor steek ik in mijn zak en ik neem een flesje water mee. Het bos is niet zover weg en ik kan alvast kijken wat ik ga doen als ik daar aankom. Het is een opluchting om zonder het zware apparaat te wandelen en even later loop ik het bos in. Zodra ik onder de bomen loop is het een stuk koeler. De weg maakt iets verderop een bocht. Ik loop een stukje verder. De lucht is stil en kalm. De weg is er hier slechter aan toe. Wortels hebben het asfalt verdeeld in gladde stukjes en heuvels. Ik ben nu verder en kan de bocht in kijken. Verderop krult de weg weer de andere kant op. In het rechte stukje tussen de bochten zie ik een leuning. Mogelijk een beekje. 
+
+De leuning staat niet meer recht overeind en het is nog net te zien dat het ooit wit geschilderd was. Ik hoor water stromen maar kan het beekje niet echt zien. De kanten van het water staan vol met struiken en kleine bomen. Aan de rechterkant van de weg vlak voor de brug zie ik dat er ooit een afslag was. Kleine struikjes en hoog gras laten zien waar een zandpad liep. Als ik het zandpad een stukje ingelopen ben zie ik een kleine schuur. De voorkant is open maar de muren staan verder nog. Als ik dichterbij kom moet ik over de oude schuifdeur stappen. Het dak heeft wat gaten maar het metaal met ribbels lijkt verder stevig genoeg te zijn. Het ruikt naar bos maar niet nat. 
+
+Ik loop weer terug naar de motor. Bij mijn spullen aangekomen probeer ik ze in trips te verdelen. De koffers, De slaapmat en de andere spullen achterop, mijn waterflessen en reservebenzine en de motor. Dan natuurlijk ook nog de motorjas helm en het kleine spul dat uit mijn bepakking ontsnapt zodra het niet meer vast zit aan de motor zoals de spanbanden en klein reparatiespul. Dit gaan wel een paar trips worden. Ik doe de motorjas maar aan en pak als eerste het kleine spul. Ik stop dit zo veel mogelijk in de waterdichte zakken waar mijn slaapmat en dat soort dingen in zitten. Dan loop ik met mijn jas aan en met zoveel mogelijk in mijn handen richting de schuur. 
+
+Het kost mij flink wat tijd om mijn spullen richting de schuur te krijgen. Omdat mijn zeil nog bij de motor ligt moet ik alles direct op het zand op de grond leggen. Na de tweede trip heb ik genoeg van het telkens over de deur te moeten stappen. Als ik een van de balken pak om hem opzei te slepen laat deze los en zit ik weer op de grond. Vandaag levert in ieder geval blauwe plekken op. Een paar trips later loop ik het bos uit richting de motor. Aan de horizon zie ik wolken. Dikke grijze wolken. Het lijkt erop dat ik niets te vroeg ben met het vinden van beschutting. Alleen de koffers, het zeil en de motor zijn nog over. Ik zet de eerste koffer weer vast aan de motor en vouw het zeil op met de koffer er nog op. De wind is gaan waaien en de wolken lijken snel dichterbij te komen. Ik pak de koffer op en stop het zeil onder mijn andere arm. 
+
+Bij de motor realiseer ik mij dat mijn spanbanden in de schuur in een van de tassen zitten. Ik zet de koffer op de weg en pak het zeil zo goed mogelijk op het lage stukje tussen het zadel en stuur. De laatste koffer maak ik daarna weer vast aan de motor. Er zitten diepe krassen in het materiaal door de laatste paar keer vallen maar alles is nog recht dus het kliksysteem werkt gelukkig wel. Ik duw de motor van de standaard en verder in beweging richting het bos. Zonder de bepakking achterop is dit een stuk makkelijker. Bij elke stap moet ik uitkijken dat ik niet met mijn benen het zeil losschop. Halverwege lijkt het te willen ontsnappen en stop ik even om het weer vast te klemmen op zijn plaats. 
+
+Ik duw de motor door de begroeiing naar de schuur. Naar binnen gaat niet lukken zonder haar over de deur, die nog steeds in de weg ligt, te duwen. Ik besluit dat het risco op een lekke band of valpartij te groot is en zoek een stevige stukje gras waar de standaard niet tever wegzakt. Dan breng ik het zeil naar binnen en rol ik het weer uit. Ik veeg zoveel mogelijk van het zand van de tassen en andere spullen. En leg ze op het zeil met mijn motorjas erbovenop. Uit een van de tassen haal ik een pakketje. Ik maak het touwtje om het tasje los en een kluwen metalen buisje gerold in een stof komt eruit. Elk buisje heeft een elastiek dat eruit komt dat naar een gaatje in het centale deel of een ander buisje loopt. Als ik alle buisjes in de juiste gaten heb gedaan, simpel, volg het elastiek. Pak ik de zitting en maak die met de lipjes vast aan de onder en bovenkant. Het bouwen van dit stoeltje is elke keer weer een avontuur. Ik zet het stoeltje naast het zeil in de schuur. Nu ik kan zitten merk ik dat ik honger heb. In de tijd dat het slepen met mijn spullen heeft gekost is de middag veranderd in de namiddag. 
+
+Ik pak mijn koffers van de scooter en leg ze op het zeil. Uit een van de koffers haal ik mijn brander en de pot. Mijn watervoorraad is nu nog een grote en twee kleine flesjes. Ongeveer 3 liter. Ik weet niet hoelang ik hier nog ben dus dat is mager. Uit de andere koffer haal ik de opgevouwen lege fles en mijn filter. De randen van het riviertje zijn steil, ongeveer anderhalve meter hoog. Ik loop wat verder stroomopwaarts op zoek naar een plaats waar ik bij het water kan komen. Het oude pad wordt steeds slechter begaanbaar. Als ik een plaats vindt waar de rand ingezakt is en een soort dam heeft gemaakt klauter ik naar beneden. Door de instorting is een mini dam ontstaan en is het water wat dieper. Perfect om de fles te vullen. Ik houdt de fles op de kop en doe het filter in het water. Dan trek ik aan de lus aan de achterkant. De fles trekt het water door het filter en vult langzaam. De fles wordt alleen ook steeds zwaarder en ik moet hem even opzij leggen. De tweede keer lukt het om hem helemaal te vullen. 
+
+Ik zet het water op en ga zitten om te wachtten tot het kookt. Uit de koffers pak ik het pakje noodles. Ik breek ze terwijl ze nog in de verpakking zitten. Daarna maak ik het pak open en haal ik de saus eruit. Ik moet mijn lantaarn erbij pakken. Het wordt snel donkerder. De zon is achter de wolken verdwenen. Als het water kookt en ik mijn noodles erin heb gedaan begint het ook echt te regenen. Dikke druppels plonken op het metalen dak en de ruis van de regen maakt de rest van de wereld stil. Alleen de regen, het gesis van de gasbrander en pruttelen van het water zijn hoorbaar. 
+
+Het eerste dat mij opvalt als ik de trein uitstap is het geluid. Een ruis van zoveel mensen die met elkaar aan het praten zijn. Het dak van de hal is hoog boven mijn hoofd. Een stroom mensen loopt mij voorbij terwijl ik mij probeer te orienteren. Ik loop wat verder met mijn rugzak in mijn armen en ga midden in het perron staan. De palen, bankjes en andere stationsdingen laten mij uit de stroom mensen ontsnappen en geven me wat ruimte op mijn rugzak op mijn rug te doen. De trein waar ik net uitstapte is nog steeds aan het leegstromen. Achter mij op het andere spoor staat een andere trein. De deuren staan open maar er komen geen mensen meer uit. 
+
+Als de trein leeg lijkt te zijn en het wat rustiger lijkt te worden loop ik achter de stroom aan. Tussen de twee treinen heb ik geen idee van de groote van de aankomsthal. Pas als ik aan de voorkant van de treinen aankom krijg ik een idee hoe enorm dit is. Veel groter dan de vertrekhal waar ik deze ochtend instapte. Groter ook dan de stations waar we onderweg zijn gestopt. De sporen stoppen in de hal dus aan het einde van het perron kan ik kiezen rechts of links te gaan. Voor mij zijn winkels en zo te zien kan ik van het perron af komen door een van de trappen tussen de winkels op te gaan. Volgens de borden zijn wij aangekomen op spoor 31. 
+
+De hal heeft meer dan veertig sporen. Het lijkt bijna een ondergrondse bunker. Overal is beton. Het gevoel van ondergronds zijn is weggehaald door de grote ramen aan de zijkanten. Van het dak tot bijna aan de grond laten ze, allen maar onderbroken door pilaren het zonlicht binnen. De ramen zijn bedekt dunne panelen die het licht van buiten tegenhouden. Waarschijnlijk om de warmte van buiten tegen te gaan. Ik loop het perron af en ga een van de grote trappen op. Bovenaan ben ik op een soort verhoging die over de hele breedte van het gebouw loopt. Bovenaan de trappen draai ik mij even om. Sporen vol met gestroomlijnde machines die mensen vanuit heel Europa hier afzetten voor werk. 
+
+Ik heb gelezen en bekeken wat ik nu moet doen. Omdat ik geen vaste reiziger ben moet ik door immigratie inclusief de gezondheidscheck. Ik kijk om mij heen om uit te vinden waar ik nu heen moet om daar te komen. Aan het einde van de hal zie ik een hal van twee verdiepingen met daarop het bord immigratie. Ik denk dat ik daar naar toe moet. In de hal zijn eilanden van winkeltjes met koffie, souvenirs en dingen die je vergeten kan hebben. Ik verdrink in het geroezemoes van alle mensen als ik door de menigte richting de immigratie ingang loop. 
+
+Miku helpt mij naar het gebouw door het doolhof van winkeltjes, snack stands en groepen mensen. Ik heb nog nooit zoveel mensen bij elkaar gezien. De meesten lopen doelgericht naar hun bestemming maar ik zie er ook wat die net zo verdwaast als ik rondlopen. “Je bent laat” zegt Miku. “Als je aankomt met de rest van de mensen die in de beld werken kan je alleen maar met de groep meelopen.” Ze geeft me door dat er wachtrijen zijn bij immigratie en ik het beste nu even wat te drinken kan halen. Ik loop een mini-super in en pak een flesje water. Miku betaalt voor mij terwijl ik de super al uit loop. 
+
+Immigratie heeft deuren die groot genoeg zijn om groepen mensen tegelijk binnen te laten. De centrale hal daarachter is leeg. Twee grote trappen leiden naar gangen boven en beneden zijn er ook twee. Een pad op de grond licht op en ik volg het een van de hallen beneden in. De hal heeft regelmatig openingen rechts en links dieper het gebouw in. Bij elke afslag wordt de hal zelf een stukje smaller. Door de plaats van mijn routepad denk ik dat ik de zesde afslag rechts ga nemen. En inderdaad het pad loopt naar de zesde gang en leid mij dan rechtsaf een gang in. Ik ben de enige die nu deze kant op loopt. In de hal zelf liepen nog wel een paar mensen maar die hebben hun eigen pad gevolgd. 
+
+De gang heeft deuren aan beide kanten. Een van de deuren is groen en het pad leidt mij daar naartoe. Als ik er bijna ben schuift deze open en weer dicht als ik erdoor ben. In de kamer staat een biometer. Ik ken de procedure en heb de lampjes die aangaan voor de verschillende functies eigenlijk niet nodig. Ik kijk de lenzen in voor de optische en temperatuur scan. Steek mijn vinger in het gat om bloed te laten prikken en beantwoord de vragen of ik mij ziek voel of drugs heb gebruikt allemaal met “nee”. De deur aan de andere kant van de ruimte gaat open en ik zie stoelen in een halletje, een soort wachtkamer. “Je mag doorlopen en daar gaan zitten” zegt Miku. Ik sta op en plof neer in een van de stoelen in de wachtkamer. 
+
+ 
+
+ 
+
+ 
+
+ 
+
+- Hoe vertel je het in de kantine? 
+
+- Hoe ziet het shot eruit? 
+
+- We beginnen in de shit, hebben shit meegemaakt, fixen de shit en rijden onze oude shit in. 
+
+- Eerste versie, het verhaal moet lopen. De scenes kunnen nog gemaakt worden 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+De klas moest groepjes maken. Vier mensen per team, drie lokaal en een online. Het was het derde uur, net na de pauze dus het lokaal was al druk. Nu had meneer Vermeer nog een schepje erbij op gedaan. Mijn klasgenoten renden door het lokaal. Meneer Vermeer, mager, kaal met een grijs baartje keek het aan. Voor mij was er niet zoveel stress. Het zou de vaste groep wel weer worden. Danielle en Jody hadden elkaar gevonden. Ik kreeg een melding dat Esther een groep had aangemaakt en wij een uitnodiging hadden. Ik joinde en liep naar Danielle en Jody. 
+
+Nadat we een paar van de jongens hadden weggejaagd reden we drie tafels tegen elkaar en klikte ze vast. Meneer Vermeer wachtte tot de klas zich georganiseerd en gesetteld had. We zaten in een driehoek achterin de zaal. Het duurde even tot mijn andere tweeendertig klasgenoten hun partners gevonden hadden en in groepjes aan de tafels zaten.  
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+ 
+
+Feiten om mee te werken 
+
+Afstand 4000 km 
+
+Max snelheid 60 km 
+
+De bedoeling was om in ongeveer 30 dagen naar boven te rijden 
+
+Gewend aan altijd connected 
+
+Heeft onderweg geleerd te sleutelen, Hoe? 
+
+Het is Lente, Zomervakantie verplaatst? 
+
+Waarom vinden ouders het goed? 
+
+Het gebeurd in Twente 
+
+Zoals zoveel mensen heeft ze geen grootouders. 
+
+Hoe werkt school? 
+
+School is vier uur per dag. Begin is om 10, dan 2 uur les. 30 min pauze en 2 uur les. 
+
+De aandacht in de schooltijd ligt bij dingen doen. Het stampen, of leren van feiten is aan de assistenten uitbesteed. 
+
+Buiten school is er veel huiswerk. Ook dit is gericht op dingen doen en het toepassen van materiaal, kennis en vaardigheden. 
+
+Verhalen om te vertellen 
+
+Veranderde wereld door klimaat 
+
+Always connected 
+
+Mensen zijn ok 
+
+Oude techniek blijft werken 
+
+We beginnen in de shit, hebben shit mee gemaakt, fixen de shit en rijden onze oude shit in. De wereld is trouwens ook shit. Of is het? 
+
+Samenvatting? 
+
+In een wereld van na klimaatverandering. De meeste mensen in Europa zijn naar de voormalige Scandinavische landen gemigreerd. Een scholier krijgt toestemming van haar ouders om in de vakantie iets van de wereld te zien. 
+
+Met een scooter gaat ze vanaf de industiebelt (Marokko) naar de bewoonde wereld (Noorwegen) rijden.  
+
+Daartussen ligt een wereld die sinds de klimaatrampen onbewoonbaar is verklaard. 
+
+Het eerste deel is het moment waar haar motor in Twente kapot gaat. Hier zijn ook de flashbacks van het begin van de reis en de langzame weg naar onafhankelijkheid. Het twee deel is het weer terug rijden de bewoonde wereld in. 
+
+ 
