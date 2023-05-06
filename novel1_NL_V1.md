@@ -111,7 +111,7 @@ De gang heeft deuren aan beide kanten. Een van de deuren is groen en het pad lei
  
 
  
-
+# Notes
 - Hoe vertel je het in de kantine? 
 
 - Hoe ziet het shot eruit? 
@@ -120,89 +120,12 @@ De gang heeft deuren aan beide kanten. Een van de deuren is groen en het pad lei
 
 - Eerste versie, het verhaal moet lopen. De scenes kunnen nog gemaakt worden 
 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
+## Old scene
 De klas moest groepjes maken. Vier mensen per team, drie lokaal en een online. Het was het derde uur, net na de pauze dus het lokaal was al druk. Nu had meneer Vermeer nog een schepje erbij op gedaan. Mijn klasgenoten renden door het lokaal. Meneer Vermeer, mager, kaal met een grijs baartje keek het aan. Voor mij was er niet zoveel stress. Het zou de vaste groep wel weer worden. Danielle en Jody hadden elkaar gevonden. Ik kreeg een melding dat Esther een groep had aangemaakt en wij een uitnodiging hadden. Ik joinde en liep naar Danielle en Jody. 
 
 Nadat we een paar van de jongens hadden weggejaagd reden we drie tafels tegen elkaar en klikte ze vast. Meneer Vermeer wachtte tot de klas zich georganiseerd en gesetteld had. We zaten in een driehoek achterin de zaal. Het duurde even tot mijn andere tweeendertig klasgenoten hun partners gevonden hadden en in groepjes aan de tafels zaten.  
 
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
- 
-
-Feiten om mee te werken 
+# Feiten om mee te werken 
 
 Afstand 4000 km 
 
