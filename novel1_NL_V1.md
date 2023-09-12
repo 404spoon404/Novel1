@@ -26,9 +26,9 @@ Ik merkte dat de man mij aankeek en hij en Miku op mijn reactie wachtten. De uit
 
 Hij duwde de scooter naar buiten. Daar kreeg ik korte uitleg over de bediening en de versnellingen. “Versnellingen?” Dit pre hybride model had nog versnellingen. In de lessen hadden de machines geen versnellingen gehad. “Wees blij dat dit geen koppeling heeft” grijnsde hij. “Start hem maar” Ik pakte de sleutel aan deed hem in het sleutelgat, Er gebeurde niets en in de uitleg zat geen startknop. Miku kwam mij te hulp, “Draai aan de sleutel” het lampje in de snelheidsmeter ging aan.Verder gebeurde er niets. “Aan de achterkant van de motor zit een hendel die je kan uitklappen.” Ik vond de hendel met een rubber bovenkant. "Je trapt hem aan” In mijn benen kon ik voelen wat ze bedoelde. Ik ging op kickstart staan en duwde voorzichtig naar beneden. Het motortje maakte een ratelend geluid maar verder gebeurde er niets. 
 
-..
-
 “Denk aan het gevoel” zei Miku. Ik concentreerde mij op het gevoel in mijn benen. Dat was harder duwen dan ik verwacht had. Ik probeerde het nog een keer en ging bijna op de kick staan. Het motortje begon te ploffen. “In twee keer, we hebben een natuurtalent” zei de monteur lachend. Het klonk niet of hij mij aan het uitlachen was. Miku gaf door dat ik de machine van de middenbok kon halen door vooruit te duwen. Ik ging zitten en duwde de versnelling naar beneden met mijn linkervoet. Een luide klik en een schok. Voorzichtig draaide ik aan het gas. Het scootertje begon te rijden. “Voeten op de pegs” Miku leek plezier te krijgen in mij coachen. Ik tilde mijn voeten voorzichtig op en was nu echt aan het rijden. 
+
+..
 
 Keer op keer ging ik op de kickstand staan. Het lampje in de snelheidsmeter was aan, de motor ratelde maar ik voelde het pakmoment niet. Een knal, rook maar niet het zacht ploffende geluid waar ik nu zo aan gewend was. Keer op keer bleef ik het proberen. Ik voelde het zweet onder mijn oksels en de zon branden. Dit ging hem niet worden. 
 
@@ -152,8 +152,93 @@ Als ik de noodles op heb is de regen nog niet opgehouden en de trek nog niet weg
 
 Ik heb geen idee hoe laat het is. Toen de moter ermee stopte was het denk ik halverwege de middag. Maar hoe lang het gesleutel en gesleep heeft geduurt weet ik echt niet. De donkergrijze lucht helpt ook niet. Het kan donker aan het worden zijn maar het kan ook dat de zon gewoon verstopt zit achter de dikke wolken. Even denk ik erover om de tijd in mijn hoofd te controleren maar dat zou betekenen dat de andere dingen ook weer aan gaan en dat is niet nodig. Met niets beters te doen besluit ik mijn slaapplek in orde te maken. Het pannetje, met het bestek erin zet ik onder een stroompje water dat van het dak af komt. Dan controleer ik met mijn zaklamp de grond op water en het dak op lekkage. Alles is nog droog. Zou dit ook betekenen dat dit schuurtje nog onderhouden wordt?
 
-Ik rol mijn luchtbed uit op het zeil en maak het ventiel open zodat het zich opblaast. 
+Ik rol mijn luchtbed uit op het zeil en maak het ventiel open zodat het zich opblaast. Door mijn heen en weer lopen is wat van het fijne witte zand op het zeil gekomen dus ik veeg dat zo veel mogelijk weg voor ik de mat neerleg. De slaapzak haal ik uit de waterdichte zak en ik leg het over het luchtbed. Nu ik denk over slapen merk ik dat ik nog in mijn reiskleding loop. Het zweet is opgedroogt en heeft witte zoutplekken achtergelaten. Een douche en omkleden is wat ik nodig heb. De regen stroomt onverminderd door.
+
+Ik besluit de afwas te doen voor ik mij omkleed. Mijn reiskleding kan morgen wel drogen tijdens het rijden. Uit een van de koffers pak ik het zakje met de spons en de theedoek. De theedoek leg ik klaar en met de spons loop ik naar buiten de regen in. In de regen lopen stroompjes water van het dak. Op een van de hoeken van het schuurtje zoek ik de hardste straal op. Zo te zien heeft hier ooit een regenpijp gezeten. Het water van het dak dat niet over de dakgoot loop stroomt hier door een rond gat. Met het pannetje in de stroom poets ik het uit met het schuursponsje. Ik zet het pannetje op de grond, veeg het doorweekte haar uit mijn ogen en was het bestek af in het pannetje. Nog een keer omspoelen en het is schoon genoeg. Ik loop weer naar binnen en droog eerst mijn handen en dan de vaat af.
+
+Doorweekt begin ik nu koud te krijgen. Ik heb gedouched ook al was dat niet mij bedoeling. Het pannetje vul tot de heft met water en ik zet het op de brander. Ik doe mijn shirt uit. Het plakt aan aan mij vast maar met een klein gevecht krijg ik het los. Dan, met het shirt in mijn hand bedenk ik mij dat ik het niet op de droge spullen wil leggen. Bij het verkennen van het schuurtje had ik volgens mij spijkers in de balken van de muur gezien. Ik zoek een spijker op en hang het shirt eraan. Ik moet gaan zitten op mijn stoel om mijn schoenen en sokken uit te doen. De schoenen komen met de sokken erop naast het zeil te staan. Ik haal mijn handdoek uit een koffer en droog hoofd en armen zo goed mogelijk af. Op het zeil staand trek ik mijn broek uit. Nu moet ik alleen met mijn blote natte voeten door het zand om het op te hangen.
+
+Ik sta in mijn blote voeten en mijn ondergoed op het zeil. Als ik zand van mijn voeten wil vegen zit mijn handdoek eronder. Als ik het niet doe verspreid ik zand over al mijn spullen. Weer naar buiten in de regen. Handdoek over de stoel. In het natte gras mijn voeten afvegen. Dan met een sprong naar binnen op het zeil. Ik droog mij af voor zover dat gaat en ga dan op de stoel zitten met mijn voeten op het zeil. Het water kookt en ik zet de brander uit. Dan doe ik oploskoffie in mijn mok en vul hem verder met water.
+
+Buiten is het donkerder geworden en de regen komt nog harder naar beneden. Ik hoor het op het dak en de bladeren, het stromen door de goten. Het riviertje dat rustig kabbelde is nu zelfs door het andere geluid heen te horen. De warme kofiemok verwarmt mijn handen. Ik probeer een slokje, het metaal stoot tegen mijn tanden en de koffie is nog te heet. Bij de deuropening van een oude schuur in de regen, in mijn vochtige ondergoed op een natte stoel begin ik, met de koffie in mijn hand, zachtjes te huilen.
+
+De koffie is bijna op en de regen lijkt wat minder te worden. De lucht is zelfs al wat lichter. Ik drink mijn kopje leeg en haal mijn neus op. Als ik opsta stopt de regen helemaal. De bomen lekken nog na en ik hoor dikke druppels op het dak vallen. Uit mijn koffer haal ik een broek, slipje en een vers t-shirt. Ik trek mijn sport bh over mijn hoofd en droog mij zo goed mogelijk af voor ik het shirt aandoe. De handdoek is niet meer droog te noemen maar het helpt wel. Ik verwissel mijn boxer voor de slip en trek de droge broek aan. Uit mijn koffer pak ik mijn sandalen. Ook pak ik een van de scheerlijnen en maak een waslijn in een van de hoeken van de schuur. Alle natte kleding en de handdoek hang ik hier op.
+
+Als ik hiermee klaar ben zie ik door de deuropening dat de zon weer tevoorschijn gekomen is. Ik loop naar buiten. De schaduwen zijn duidelijk al langer aan het worden. Ik kan het niet goed zien door de bomen maar de zon lijkt nog twee handen boven de horizon te hangen. Nog twee uur voor het donker wordt beslis ik. In de verte hoor ik een geluid dat op een motor lijkt. Misschien een auto die deze kant op komt. Loop ik naar de weg? Het is behoorlijk afgekoeld na de regen maar het is nog niet echt koud te noemen. Toch pak ik een trui uit de koffer. Dat is snel gedaan, de inhoud van de koffers en tassen ligt nu meer op het zeil verspreid dan erin. Snel loop ik op mijn slippers naar de weg. Het gras maakt mijn voeten weer nat.
+
+Het bruggetje is het hoogste punt in de weg. Ik ga in het midden staan en kijk zover als ik kan. Het geluid kwam uit de richting waar ik vandaan kwam. Daar kan ik ver kijken over de weg. Het bos uit naar de grasvelden. Hier zie ik niets aankomen. Aan de andere kant loop de weg met een bocht naar rechts verder. Ik sta stil en houd mij adem is maar het geluid is niet meer te horen. 
+Ik besluit de weg wat verder te volgen. Als ik de weg blijf volgen kom ik mensen die voorbij komen wel tegen. Ik doe mijn trui om mijn middel en begin te lopen. Ook voorbij de bocht naar rechts loopt het bos door. De weg buigt meteen weer de andere kant op dus ik kan niet ver vooruit kijken.
+
+De weg is breed genoeg voor twee auto's in het midden is op sommigep plaatsen een vervaagde streep zichtbaar. Aan de zijkanten is een smalle strook voor het bos begint. Oude fietspaden aan beide kanten van de weg. Net zoals de straat zelf gebroken en gebult met boomwortels. De bochten zijn lang. Ik kan ver genoeg vooruit kijken om te zien of er iets aankomt maar niet zien of het bos minder wordt. De weg lijkt langzaam iets omhoog te lopen. Ik loop stevig door in het bos is verder niets te zien. Bomen en de weg.
+
+Ik denk dat ik ongeveer een half uur gelopen heb als de bochten stoppen. Ik zie het einde van het bos in de verte. Ik loop verder rechts en links zijn velden met gras en kleinere boompjes. Als ik bij het einde van het bos aankom zie ik meer lang gras en verderop een volgende bomenrij. Een grote steen langs de weg geeft een plaats om te zitten en uit te rusten. Ik bedenk me dat ik water mee had moeten nemen. Terwijk ik zit luister ik en scan ik de horizon. Geen spoor van mensen.
+
+Na zo een tijdje gezeten te hebben is de zon toch wel laag. Ik sta op en begin terug te lopen. Het voorste bandje van mijn sandaal schuurt en ik voel een hitteplek. Dat gaat een blaartje worden. Ik kom weer aan bij mijn brug en volg het zandpad naar het schuurtje. In de schemering kom ik daar aan. Het is echt nauwelijks te zien vanaf de weg. Wat als er vannacht iemand langskomt? Ik kan de brommer aan de kant van de weg zetten zodat ze kunnen zien dat hier iemand is. Wat is erger, iemand die voorbijrijd of iemand die mijn brommer meeneemt. Ik besluit voor nu om de brommer in de schuur te laten staan en hem morgenochtend aan de straat te zetten.
+
+Met het laaste licht doe ik mijn spullen zoveel mogelijk weer in de koffers en tassen en maak ik ze dicht. Ik voel de kleding aan de waslijn maar die is nog niet echt aan het drogen. De lucht in de hele schuur voelt vochtig en de binnenkant van mijn slaapzak is klam als ik erin ga liggen. Na een tijdje warmt het op. Ik luister een tijdje naar de geluiden van de nacht. So af en toe een late druppel uit de bomen een een beestje dat ergens rondscharreld. Als een mug in mijn oor begint zoemen doe ik de muts van de slaapzak verder dicht en ik merk niet meer dat ik slaap val.
+
+...
+
+Nog een paar weken dan gaan we op pad. Ik rek mij uit op mijn stoel terwijl ik het overzicht van ons verslag bekijk. Ik zie de anderen in de schermen rechts naast mij bureau geconcentreerd lezen en soms iets veranderen. De veranderingen worden direct bij mij aangegeven en mijn bovenste scherm laat live een lijst met veranderingen zien. Deze vijf schermen zijn nu de enige die ik open heb staan. Tijdens het onderzoeken voor het verslag zat ik omringd door schermen op mijn kamer. Ik kijk door het scherm door het raam naar buiten, de achtergrond word doorzichtig en ik zie de straat waar ik woon. Straatlantaarns aan en de lichten van de buren aan de overkant. De dagen worden al langer maar met de deadline morgen hebben moeten we toch in het donker werken.
+
+Ik zie een verandering in het overzicht en Jody kijkt op. "Volgens mij is mijn gedeelte helemaal af." Ik kijk naar de link van de laaste verandering en de route komt tevoorschijn. Ze heeft de weergave van de route aangepast zodat de afslagen duidelijker zichtbaar zijn. We gaan dit niet gebruiken tijdens de reis, de route zichtbaar op de weg en Miku en de anderen die ons vertellen waar we op moeten letten. Meneer Vermeer wil de voorbereiding alleen duidelijk zien. "Ziet er goed uit." Ik ga weer terug naar het overzicht en open mijn deel, onze bepakking.
+
+Het is een lange lijst geworden. Ik heb het in drie delen verdeeld: de voertuigen, gezamelijk en per persoon. Bij de voertuigen staan de scooters en de dingen die we daarvoor nodig hebben. Bij de scooters staat een tekening van een Super Cub. De anderen wilden een 3d weergave hebben maar ik kon geen 3d plaatje vinden van de scooter. Een van de links die ik wel vond ging over een oude anime. Hier had ik dit plaatje gevonden. Bij de afbeelding staan ook links naar de shops in Cassablanca waar we de scooters kunnen kopen. De meeste van de winkels zijn in het oude deel van de stad. De tenten bij gezamelijk hebben wij al. Deze hebben we opgezet in de tuin en zo een 3d afbeelding van ons kamp gemaakt. Je kan door het kamp lopen en alle dingen die we meenemen hebben een link naar de lijst, of we ze hebben of waar we ze kopen.
+
+Ik krijg geen wijzigingen meer binnen en de anderen lijken niet meer met het document aan het werk te zijn. "Hebben we alles af?" vraag ik. Ze kijken op. "Volgens mij wel" Zegt Esther. Jody en Danielle knikken. "Gaan we het inleveren?" Iedereen is het ermee eens. Ik open de schoolsite op mijn hoofdscherm en lever alles is bij de opdracht. Nu is het wachtten wat meneer Vermeer ervan gaat zeggen. "Hebben jullie ouders het hier nog verder over gehad?" Vraagt Danielle als ik op verzenden heb gedrukt. Ik schut mijn hoofd net zoals de anderen. "Mijn ouders lijken het vergeten te zijn" Zegt Esther. "Ze vroegen mij van de week hoe het mij leek om naar een huisje aan de kust te gaan. Toen ik ze weer zei dat we samen op pad gaan, zeiden ze voor het geval dat dat niet doorging." Haar stem gaat omhoog aan het einde van die zin zoals ze haar moeder nadoet. De anderen hebben niets van hun ouders gehoord. Mijn ouders zijn ook stil geweest over de plannen voor de vakantie. Mam heeft wel gevraagd hoe het met de opdracht gaat maar heeft niet verder gevraagd. Voor pap is het normaal dat hij zich niet met school bemoeit. "Als wij het cijfer terug hebben laten we dit allemaal aan onze ouders zien" Zegt Danielle. "Ze moeten er dan wel wat van zeggen." Dit spreken we af.
+
+...
+
+Ik schrik wakker. Het is nog helemaal donker en ik heb geen idee hoe laat het is. Wat heb ik gehoord? Ik vraag mij af of ik mijn eten misschien niet goed opgeruimd heb er een dier op af gekomen is. Door de deuropening komt het maanlicht naar binnen. Alles heeft een zilveren gloed. Daar is het weer. Een geritsel buiten. Het lijkt aan de achterkant van het schuurtje te zijn. Ik zie de kieren tussen de planken wel maar het is te licht in de maan om daar doorheen te kijken. Ik blijf liggen terwijl ik zo stil mogelijk ademhaal. Mijn slaapszak ritselt oorverdovend als ik mij op mijn zij draai en de deur in de gaten houdt. Een tak achter mij. Ik verstijf. Er loopt iemand om de schuur. Meer geluiden nu aan de zijkant. Waar is mijn zaklamp. Zo stil mogelijk blijven liggen en rond mijn kussen grijpen zorgt weer voor een hoop geruis. Dan vindt ik mijn hoofdlamp.
+
+Het maanlicht valt schuin door de deur naar binnen. Ik lig in het donker en mijn voeten zijn verlicht. Dan een schaduw net buiten de deur. Er is echt iets. De schaduw komt dichterbij. Ik houdt mijn adem in. Door de schaduwen van de bomen kan ik geen vorm zien. In de deuropening verschijnt iets. Het is te groot om een hond te zijn. Het dier komt is nu helemaal zichtbaar. Ik zie de dunne benen en de hoorns. Oortjes die ronddraaien als het luistert. Een tweede vorm verschijnt. Herten. Ik realiseer mij opeens dat dit herten zijn. Ik knip mijn lamp aan en de ogen lichten op als koplampen. Even kijken ze mij aan als ze opeens met een sprong ervandoor gaan. Geluiden om de schuur, het is een hele kudde. Het geluid verdwijnt in de richting van de weg. Ik haal weer adem en knip de zaklamp uit en ga weer liggen. Mijn hart gaat nog tekeer. Ik kijk naar het maanlicht en wacht tot ik weer wat kalmeer. Eigenlijk moet ik plassen maar Ik zie het echt niet zitten om de schuur uit te gaan. Uiteindelijk val ik weer in slaap.
+
+...
+
+De tafel is bijna gedekt als de tekst van Jody binnenkomt. "Het gaat niet door." Terwijl ik dit aan het lezen ben komt een volgende binnen: "Mijn ouders willen niet dat we alleen op reis gaan." Een tekst van Esther "We mogen wel samen kamperen op een veilige plek." Ik kan haar met haar ogen horen rollen in de tekst. We hebben vandaag de cijfers voor de opdracht binnen gekregen. Allemaal voldoendes. Meneer Vermeer had een paar kleine verbeteringen maar ik denk dat dit meer was zodat hij geen tien hoefde te geven. Ik stop met het bestek in mijn handen en probeer Esther op te roepen. Ze reageert niet. We hebben nog niets van Danielle gehoord. Vandaag zouden we onze ouders het plan laten zien. Zou dat misgegaan zijn. Zijn we iets vergeten? "Meneer Vermeer heeft het plan gedeeld met onze ouders, laf" Krijg ik van Jody binnen. Ik haal een keer diep adem. Dan ga ik verder met het bestek neerleggen.
+
+Mam heeft de pannen op tafel gezet. Pap schept als eerst op. Ik besluit dat de aanval de beste verdediging is. De berichten van Esther en Jody bleven binnenkomen. Ik heb met ze afgesproken dat ik ze even op mute zet zodat ik mijn ouders kan overtuigen dat het wel door kan gaan. We hebben nog helemaal niets van Danielle gehoord. De chats zijn niet eens gelezen.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
  
+
 # Notes
 - Hoe vertel je het in de kantine? 
 
