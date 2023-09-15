@@ -219,7 +219,6 @@ Bij de brug aangekomen zet ik de scooter op de middenbok. De eerste keer dat ik 
 
 Bij de schuur pak ik mijn stoel en zet deze buiten. De koffer met mijn ontbijt en het brandertje ernaast. De fles met water is half leeg. Ik giet water in het pannetje en doe het vuur aan. Dan zet ik het pannetje op het vuur. Ik loop de schuur in en pak een trui en sokken uit mijn koffer. Met de trui en sokken loop ik naar mijn stoel en ga zitten. Slippers uit sokken aan en voeten weer terug in de slippers. Om de trui aan te doen moet ik weer opstaan. Modeprijzen ga ik hier niet winnen maar er zijn ook geen mensen om ze uit te delen of af te pakken. Als ik weer zit doe ik het koffertje open. Broodjes, het jampotje en en een mes balanceer ik in mijn linkerhand terwijl ik met mijn rechterhand de koffer weer dichtdoe. Ik zet de spullen op het zo gemaakte tafeltje. Mijn mok en de koffie staan nog op het zeil. Ik sta weer op en pak de spullen. Weer zittend smeer ik twee broodjes en wacht ik tot het koffiewater kookt.
 
-?
 
 
 
