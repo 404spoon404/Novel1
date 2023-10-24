@@ -394,7 +394,21 @@ Voor een bocht waarschuwd Miku mij wat af te remmen. Een rijtje auto's staat ope
 
 Als ik dichter bij de stad kom zijn er meer campings te zien. De kleine weggtjes zijn drukker met auto's die mensen ophalen en afzetten. Zonnepanelen staan naast de campers en behalve de mensen die onderweg zijn is het leeg tussen de wagens. De campings zien er ook steeds ouder uit. De campers soms met lekke banden of zelfs op houtblokken in de velden langs de weg. Verdroogde bomen zonder bladeren tussen de kampeerplaatsen. Dan rijdt ik opeens weer tussen de witte huizen in een buitenwijk van Malaga. Van een heuveltje af ligt de stad voor mij met de zee weer erachter. Weer een oprit van de snelweg op om de brug de stad in over te steken. De auto's wachtten netjes in een rij maar ik rijdt ze allemaal voorbij. Bij de oprit voeg ik weer in en rijden we de snelweg op. Rechts uitvoegen volgende snelweg op. Aan beide kanten van de weg zijn grote hallen, een soort industriegebied. De meeste auto's gaan zo te zien hierheen. Om mij heen voegen ze uit. Dan een groot viaduct onderdoor en opeens staan we in drie banen in een rij voor een rotonde verderop. Ik moet hard remmen en rijdt voorzichtig tussen de auto's door.
 
-Drie banen gaan de stad in. Tussen de witte gebouwen in. Bomen langs de weg en daarachter een brede stoep. Ik leer al snel dat de auto's op de rechterbaan stoppen om mensen op te halen of thuis af te zetten en ga op de middelste baan rijden.
+Drie banen gaan de stad in. Tussen de witte gebouwen in. Bomen langs de weg en daarachter een brede stoep. Ik leer al snel dat de auto's op de rechterbaan stoppen om mensen op te halen of thuis af te zetten en ga op de middelste baan rijden. We zijn dichter bij de zee en de weg gaat voor mij omhoog. Aan beide kanten ontstaat ruimte en is er een soort park. Op het hoogste punt kan ik zien dat we een dijk op gereden zijn. Onder ons zit een riviertje met aan de zeekant een wijk met de witte huizen die ik ken. We zijn de dijk in op een van de hoeken opgereden en rijden de wijk in de diepte voorbij. Aan de ene kant van de dijk zie ik de haven en de zee aan de andere kant de oude stad. Ik ga linksaf de dijk af en de oude wijk in. Onderaan de dijk rijdt ik langs een catedraal die tegen de dijk aan ligt. Boven de rand van het beton zie ik dat de bomen even hoog lijken als de vierkante toren. In een smal straatje zet ik mijn scooter in een rijtje langs de kant van de weg.
+
+De ingang van mijn hotel zit in een barretje waar een paar mensen koffie zitten te drinken. Dit is meteen de receptie en ik meld me aan bij de barvrouw. Ze geeft me de sleutel van de kamer en als ik alles naar boven gebracht heb ga ik op het bed zitten. Het is nog vroeg in de middag, ik besluit het voorbeeld van de locals te volgen en wil gaan slapen tot het wat koeler is. Daarna kan ik mijn eten voor onderweg inkopen en mijn avondeten gaan opzoeken. Ik heb ook nog wel tijd om iets van de stad te zien en aan het verslag van vandaag te werken.
+
+...
+
+Mijn was is nu vast wel droog. Ik zit al een tijdje voor mij uit te kijken en de zon schijnt van wat hoger door de bomen. Als ik opsta en naar de lijn loop merk ik dat het gras in de schaduwen nog vochtig voelt van de dauw. Mijn shirt voelt al wel droog, misschien een beetje klam maar de dikkere kleding is zeker nog vochtig. Het is nog te vroeg om alles van de lijn te halen. Ik ga maar weer in mijn stoel zitten en kijk naar het zonlicht dat in stralen door de bomen valt. Buiten het bos is het vast droger. Hier heb ik het riviertje voor vers water en natuurlijk het schuurtje om in te slapen. Het drogen van mijn spullen is ook niet super belangrijk. Als iemand langskomt kan ik het zo de koffer ingooien. Ik had iets te lezen mee moeten nemen.
+
+...
+
+
+ 
+
+
+
 
 
 
