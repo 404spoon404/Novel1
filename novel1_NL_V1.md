@@ -428,6 +428,30 @@ We kronkelen omhoog en omlaag om de grootste heuvels heen. Op de hoogste punten 
 
 Linksaf een brug over en dan het dorp in. Vergrijsde zebrapaden steken de weg over. Bij een laadstation stop ik en parkeer ik. Met het reservetankje vul ik de benzinetank bij. Na gisteren en vandaag is die nog bijna halfvol. Aan de andere kant van de weg is het winkeltje dat wij gevonden hadden om bezine te kopen. De man achter de kassa loopt voor mij uit de garage in waar ik het reservetankje bijvul uit een groot vat. Miku betaald en we lopen weer naar de scooter waar ik het tankje weer achterop vastmaak. Nog even wat water en dan weer starten en verder. Omhoog richting de rotswand vlag daarvoor rechts en op de rand van de heuvel. Een stukje waar de weg is uitgehakt aan de rand. Links rotsen rechts het dal. Met een bocht om de rotsen heen langs de laatste huizen.
 
+En dan ben ik opeens in de woestijn. Ik kijk over een dal uit. Beneden zie ik de sporen van een riviertje dat uit het dal aan de overkant komt. Aan mijn kant zijn er nog groene olijfbomen maar de heuvels aan de andere kant zijn geel en rood. Een grijze rots steekt maakt een van de toppen. Ik stop bij het bordje dat het einde van het dorp aangeeft. Hier en daar is het wit van een huis zichtbaar tussen het geel. Ik verzit wat. Het is alsof niet alleen het dorp maar ook de beschaving uitrijd. Een foto is snel naar thuis gestuurd. Voorbij het bord stopt de weg waar ik op rijdt. Het asfalt is gescheurd en er ligt zand. Voorbij dit punt moet ik mijzelf zien te redden. Ik geef maar weer gas en rijdt voorzichtig verder.
+
+Gelukkig wordt de weg niet slechter. Op de meeste plaatsen ligt gewoon asfalt. We rijden nog langs huizen in het dat en op de heuvels langs de weg. Sommige staan leeg de oprit verstoft. Verderop kijkt een villa op de weg uit. Dichterbij rijdt ik langs een hoge muur langs de weg. Voorbij een bocht is een oprit met een poort in de muur. De weg kronkelt gewoon verder. Als er bomen stonden zou dit er hetzelfde uitzien en rijden als het stuk van vanochtend. Het gaat wel langzamer. Soms zijn er opeens schuren of ligt er zand in een bocht. Miku heeft de route weer aangepast. In plaats van rechts stuurt ze mij over het midden. Ik kom hier toch geen tegenliggers tegen. Hier en daar is een zijweggetje naar huizen verder op de heuvel of aan de andere kant het dal in. We blijven op de rand van de heuvel rijden. Dan een stukje waar de weg door de rotsen is gehakt. Hier rijdt ik voorzichtig om de stenen op de weg heen.
+
+Het is steeds warmer aan het worden. Mijn jas doe ik een stukje open om de wind van het rijden beter te kunnen voelen. Verder omlaag het dal in. Dan gaat de route linksaf een smaller weggetje op. Ik controleer de route. 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 
