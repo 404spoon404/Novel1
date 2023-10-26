@@ -417,46 +417,56 @@ De weg loopt iets weg bij het spoor. De wandelaars nemen een weggetje linksaf en
 Een uitloper van de heuvels duwt de spoorlijn de weg en mij in een bocht en trekt zich daarna terug voor mij een vlakte met campers, fruitboompjes en wandelaars langs de weg. Zo gaat het even door maar nu wordt het bij elke afslag rustiger met wandelaars. Het is hier niet plat plat maar de heuvels blijven in de verte. Een afslag, auto's en overstekende mensen. Ze lopen nu weer de andere kant op. Miku laat zien dat het volgende station inderdaad dichterbij is. Als ik het volgende dorpje inrijd is het echt licht en zijn de straatlantaarns uit. Ik ga van de route af en volg de wandelaars een straatje in richting het station. Op het pleintje bij het spoor is een klein cafetje met stoelen en tafels. Mensen zitten te ontbijten terwijl ze op de trein wachtten. ik parkeer de scooter naast het terras. Een paar mensen kijken terwijl ik mijn helm aan het stuur hang en in de rij ga staan om iets te bestellen.
 
 Als ik mijn broodjes en koffie heb, en een sinasappel omdat ik beloofd heb ook gezond te eten, loop ik het terras op om een zitplaats te zoeken. Alle tafels zijn in gebruik. Aan het tafeltje naast mijn scooter zitten drie mensen. Een oudere vrouw schuift de laatse stoel uit en wijst. Als ik zit knikt ze vriendelijk. De mensen zitten in stilte te eten of driken. Een paar mensen praten zachjes. De vrouw heet Bernice en ze werkt als schoonmaker in de stad. Ik knik om haar te bedanken en begin aan mijn broodjes. De koffie zit in een kartonnen beker. Terwijl wij zo zitten komen meer mensen aan anderen staan op en lopen richting het station. Mijn broodjes zijn op en ik rol de sinasappel tussen mijn handen om het pellen te beginnen. Bernice houdt haar hand op en ik geef haar het fruit. Ze geeft hem aan Peter die net met een mes een andere sinasappel aan het pellen is. Hij maakt een paar snedes en geeft mij de sinasappel opengevouwen terug. "Gracias" Zeg ik en hij lacht. "Graag gedaan" Peter is bouwvakker en onderweg naar een klus in Malaga.   
+
+Ik eet de sinasappelpartjes in stilte. De anderen aan mijn tafel zijn ook bezig met hun eten of leunen achterover met de koffie. We zitten nu nog in de schaduw van de gebouwen maar de blauwe lucht laat al zien dat het een warme dag gaat worden. Koffie, sinasappel om en om de bitterheid en het zure wisselen elkaar af. "Je hebt nog een end te gaan" zegt Bernice. "Ik heb de hele dag nog" antwoord ik. "Tot je weer thuis bent bedoel ik. Moet je niet naar school" Ik leg uit dat ik dit als een vrij project voor school mag doen zolang ik aan het einde een verslag inlever. Ze lijkt nog meer te willen vragen maar dan staan de anderen op het terras op en beginnen mensen naar het station te lopen. Mijn tafel wordt snel opgeruimd en ik zit opeens alleen. Ik stuur Bernice nog de route die ik van plan ben te volgen en ruim dan ook mijn spullen op en ga weer richting de scooter. Twerwijl ik de bepakking weer aan het controleren ben hoor ik de trein aankomen. Ik kijk naar het perron als de mensen instappen en de trein wegrijd. Dan start ik, ga voorzichtig zitten en rijdt weer naar mijn route. Als ik het dorp uitrijd komt een bericht van Bernice binnen. "Rijdt voorzichtig" en een glimlach.
+
+De weg uit het dorp gaat met een haarspelbocht de heuvel op en ik heb uitzicht over de vallei. Witte dorpjes met groene boomgaarden tussen het gele gras en de struiken. We rijden omhoog en omlaag met bochten de rand van de heuvel volgend. Van deze kant komen geen wandelaars richting het station en Miku verteld mij dat ik de laatste campings voorbij ben. Een kronklel en dan omlaag weer de vallei in. Aan de ene kant witte huizen en aan de andere kant groene bomen. De weg gaat omlaag en op de rechte stukken zie ik waar de heuvels bij elkaar komen en ik doorheen moet. Behalve sinasappels zie ik nu ook olijfbomen staan. Grijsgroene blaadjes op takken die direct uit stronken lijken te groeien. Het groen is minder en ik zie steeds meer grijs en geel. Waar de bergen bij elkaar komen is een dorpje. Als ik binnenrijdt zie tussen de heuvels boven mij een witte stad over de vallei kijken. Een kasteel op de top maakt het plaatje af. Ik kan nu kiezen omhoog naar de stad of tussen de bergen door. De route gaat rechts door het dorp en dan langs een droog riviertje verder. Langs de geul staan hoge bomen en is het gras groen.
+
+Aan het einde van het dorp kijk zie ik weer een vlakte met hier en daar heuvels. De sinasappelbomen zijn helemaal weg en in plaats daarvan staan de olijfbomen in nette rijen over het land. Zover als ik kan zien is de grond verdeeld in nette vierkanten met een boom in het midden. Tussen de bomen staat geel gras. De heuvels hebben geen bomen maar meer van het gras en hier en daar een struikje. De velden worden alleen onderbroken door de witte dorpjes die ertussen liggen. Ik rijd op een viaduct over het dal af. Dichterbij gekomen zie ik dat er een spoorlijn overheen loopt. Een schaduw over de weg en dan alleen nog maar boompjes, heuvels en lucht. dit gaat zo een paar kilometer door terwijl de zon alles opwarmt.
+
+We kronkelen omhoog en omlaag om de grootste heuvels heen. Op de hoogste punten een uitzicht op meer bomen, de laagste punten te herkennen door een bruggetje over een wat een beekje was. Omhoog en dan opeens een nieuw uitzicht. De weg omlaag een dal in met een wit dorp. Daarboven de grijze rots van een berg en opeens weer hogere heuvels in de verte. Omlaag, net niet stijl genoeg voor haarspeldbochten maar het gas dicht zodat de scooter er niet weer met mij vandoor gaat. In de bochten leun ik opzij. Buiten, binnen, buiten. De racelijn zegt Miku. Het groen van de route niet alleen rechts maar nu de hele weg gebruikend. Oranje waar ik moet afremmen groen waar het gaat. De lege weg. Warm asfalt. Weee roepen. Gas open, afremmen. En voor ik het weet sta ik beneden aan een kruizing.
+
+Linksaf een brug over en dan het dorp in. Vergrijsde zebrapaden steken de weg over. Bij een laadstation stop ik en parkeer ik. Met het reservetankje vul ik de benzinetank bij. Na gisteren en vandaag is die nog bijna halfvol. Aan de andere kant van de weg is het winkeltje dat wij gevonden hadden om bezine te kopen. De man achter de kassa loopt voor mij uit de garage in waar ik het reservetankje bijvul uit een groot vat. Miku betaald en we lopen weer naar de scooter waar ik het tankje weer achterop vastmaak. Nog even wat water en dan weer starten en verder. Omhoog richting de rotswand vlag daarvoor rechts en op de rand van de heuvel. Een stukje waar de weg is uitgehakt aan de rand. Links rotsen rechts het dal. Met een bocht om de rotsen heen langs de laatste huizen.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
  
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
- 
-
-# Notes
 - Hoe vertel je het in de kantine? 
 
 - Hoe ziet het shot eruit? 
