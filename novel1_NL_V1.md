@@ -446,7 +446,7 @@ Zo gaat het een tijd door. Heen en weer het spoor over. Op de hoogste punten van
 
 Al veel te snel kom ik bij mijn afrit. "Je kan doorrijden" Zegt Miku mij. De route gaat hier even van de snelweg af door een dorpje laat ze mij zien. Ik rijdt met de bocht mee de volgende oprit voorbij. Bij het volgende dorp moeten we wel van de weg af. Meer van hetzelfde. Maar hetzelfde is wel verschillend. Eerst rijdt ik tussen de blokkige gebouwen van een oud industrieterrein. Dan gaat het langs een dal. Beneden zie ik de sporen van wat een riviertje geweest moet zijn. Dan een bocht omlaag het dal in en weer een verlaten dorpje. Het zand veranderd zelf. Waar het geel was wordt het nu lichter bijna wit. Wat er over is van de bomen staat nu in de rotsen in plaats van in het zand van eerder. We gaan vanuit de vlakte nu meer de dalen van riviertjes in. Het verre uitzicht verdwijnt.
 
-
+Beweging in de verte. De bovenkanten van vrachtauto's voorbij rijdend op de snelweg. Met nog een paar bochten kom ik aan bij een tunnentje onder de grote weg door. 
 
 
 
