@@ -458,7 +458,7 @@ Zo kronkelt de weg verder door de warmte. Zandpaden steken we over. De grotere w
 
 Ik begin verschillen te zien in hoe de woestijn is. Tegen de heuvels zijn het stronkjes van olijfbomen in hun nette vierkanten. Wegen die er tussen door lopen waar vroeger de boeren reden voor onderhoud en voor de oogst. Onderaan de heuvels waar ik langs blijf rijden, sporen van oude riviertjes waar de vierkanten onderbroken worden. Een stukje waar het te steil is. En op de plaatsen waar de riviertjes een platter stuk in het dal raken eerst lege plekken van oude veldjes en dan het dorp. Vaak met hetzelfde aan de andere kant van de huizen. Waar het oude spoor een heuvel niet kon ontwijken een kloof waar we langzaam omhoog gaan en dan een spoorbrug waar ik niet naar beneden wil kijken. Wat vroeger een meertje was met de restanten van een dammetje gebroken aan de verre kant.
 
-Op een van de spoorbruggen zie ik in de verte zwart in plaats van het geel, grijs en rood van de grond waar ik nu al een tijdje doorheen rijdt. Door een heuvel en dan zie ik het van dichterbij. 
+Op een van de spoorbruggen zie ik in de verte zwart in plaats van het geel, grijs en rood van de grond waar ik nu al een tijdje doorheen rijdt. Door een heuvel en dan zie ik het van dichterbij. De boomstronken langs de weg verdwijnend in de verte zijn zwart, verbrand in plaats van gewoon dood. Fijn wit stuifzand
 
 
 
