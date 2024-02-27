@@ -470,6 +470,8 @@ Met al mijn spullen uitgepakt en verdeeld over het zeil ga ik weer op mijn stoel
 
 Zo ga ik een voor een mijn spullen door. Alles wat vies is maak ik schoon en alles met instructies of een lijst met ingredienten lees ik. Na het schoonmaken moet ik natuurlijk alles laten drogen. In plaats van volle koffers heb ik een zeil met spullen die liggen te drogen. Als ik dat zo zie liggen denk ik aan mijn kleding die nog aan de lijn hangt. Ik voel en het is droog genoeg. Met een arm vol ga ik weer op mijn stoeltje zitten en ga aan het vouwen. Mijn motorkleding heb ik niet nodig dus die kan al in een koffer. Misschien mijn jas wel dus die gaat er weer uit. Het brandertje ligt nog te drogen en  met water erin wil ik het niet gebruiken om nog wat koffie te zetten. Het zakje met instant koffie ziet er al behoorlijk leeg uit.
 
+Een tijdje later is alles gedroogd en heb ik een koffer met spullen die ik voorlopig niet nodig heb en een andere met daarin de dingen om hier een tijdje te kunnen zitten. Als ik mijn eten een beetje verdeel is het nog genoeg voor twee dagen. Daarna moet ik wel andere hulp inschakelen. Mijn grote vraag is wat ik in die tijd kan gaan doen. Tijdens het organiseren van mijn spullen is de tijd wel wat voorbij gegaan maar aan de zon te zien is het nog niet eens middag. Het is al wel snel warm en benauwd aan het worden. De regen van gisteren trekt op uit de grond en het is niet heet maar ik voel me al klef worden. Zo zit ik op mijn stoeltje en kijk over het beekje het bos in.
+
 
 
 
