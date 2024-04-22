@@ -523,7 +523,7 @@ Ik kijk rond. De zaal is hoog en de muren zijn dezelfde stenen als de muur van h
 Als ik een tijdje zit komt een meisje van ongeveer mijn leeftijd met het bord en een glas sinasappel sap. Ook van haar kan ik alleen zien dat ze hier werkt. "Mag ik wat vragen" vraag ik. Ze knikt. "Werken jullie hier allemaal is autistische modus?" "Ja, wij noemen het stille modus. Het zorgt dat wij meer met de gasten praten in plaats van de computers al het werk te laten doen." Ze zet de spullen neer. "Ben je hier met een groep?" Terwijl ze kijkt waar de anderen zijn. Ik vertel haar wat ik aan het doen ben. "Cool" Ze stuitert bijna "Heb je verder al rondgekeken? Ik ben na de lunch vrij en kan je een rondleiding geven." Ik kijk haar aan "Er komen hier gewoon niet zoveel mensen van onze leeftijd" haar haar zit in een paardestaart en een gebruide huid. Een ronde bril op een smal gezicht. Haar kleding kan ik niet echt zien met het groene werkschort dat ze voor heeft. "Dat is goed" zeg ik. "Tot straks" Ze loopt weer weg richting de bar.
 
 
-Als ik de broodjes op heb ruimt ze mijn tafel af. Daarna komt ze zonder schort terug in een t-shirt en spijkerbroek. "Zullen we gaan?"
+Als ik de broodjes op heb ruimt ze mijn tafel af. Daarna komt ze zonder schort terug in een t-shirt en spijkerbroek. "Zullen we gaan?, mijn naam is ..., trouwens. Ik loop met haar mee naar buiten.  
 
 
 
