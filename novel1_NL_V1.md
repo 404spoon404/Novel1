@@ -549,7 +549,9 @@ Ik houdt mij stil terwijl hij naar het motorblok kijkt, het zadel optilt en de b
 
 ...
 
+In de truck doet hij zijn pet af en legt hem op de rand voor het raam. Als wij beginnen te rijden kijk ik rond in de cabine. Dit ligt vol met spullen en gereedschap. In het vakje voor mij zie ik een paar steeksleutels, kabels, allemaal andere losse spullen en zelfs een lepel. "Je heb geluk dat ik langskwam. Ik rijdt hier maar een keer in de twee weken langs" Ik knik. Als snel rijden we het bos uit en weer de grasvelden in. Struiken en jonge boompjes steken uit het lange gras omhoog. We zigzaggen over de weg om de ergste scheuren en hobbels te ontwijken en het gaat niet hard. Als ik mij wat omdraai kan ik controleren of het motortje nog goed ligt. De oranje band lijkt haar stevig op de plaats te houden. Na zijn opmerking over het langskomen is de man stil gebleven. Het stuur gaat heen en weer om de hobbels terwijl hij verder kijk over de velden. Nu en dan remt hij even wat af, gaat rechterop zitten en lijkt iets aan de kant van de weg te bekijken. Ik zie niet wat zo interresant is. Het gras lijkt allemaal op elkaar en hij remt niet af bij de verlaten boerderijen waar we langs rijden.
 
+ 
 
 
 
