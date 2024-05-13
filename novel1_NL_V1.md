@@ -565,7 +565,29 @@ Eerst brengen wij mijn koffers en andere spullen van de achterbak naar een van d
 
 Met even zoeken, en gelukkig heeft de laptop een touchscreen. Vindt ik mijn mail. We moesten op school ook wel met een muis werken maar dat was geen succes. Ik kan normaal ook wel berichten typen met mijn toetsenbord maar het is vreemd om het echt met mijn vingers in te toetsen. Ik schrijf een kort bericht aan pap en mam. Weer een "bling" van de machine. Aan de zijkant van het scherm knippert een knop. Als ik daar op druk verschijnt een chat. "Waar ben je, wat is er gebeurd?" Bovenaan het scherm staat Esther. Ik typ terug. "Ben wat van de route gegaan had geen verbinding ben nu op een boerderij waar we hem gaan repareren" Ik wacht op antwoord als ik mij bedenk dat ik nog op enter moet drukken op het te sturen. Als ik het heb gestuurd heb ik meteen antwoord. "Alles goed? Heb je een camera?" Ik typ "alles goed" en stuur het. Dan kijk ik voor een camera. Midden, boven het scherm zit een stuk tape. "ikdenk niet dat het de bedoeling is dat ik de camera aan zet zit tape op" "Dat is vreemd, is alles echt in orde?" krijg ik terug. "alles is echt in orde het is niet zo vreemd ik moet weer gaan met de klusjes aan de slag" Als ik op de aanknop druk gaat de laptop gelukkig ook uit. Ik klap hem dicht en loop de kamer uit.
 
-De hal is nog steeds schemerig alleen nu komt wat licht door de deuropening naar de trap. Eigenlijk wil ik nu wel naar de andere kamers kijken maar de deur naar de werkschuur staat op een kier. Ik hoor daar geplons. Hij is er dus aan het werk en ik moet er niet te lang over doen.  
+De hal is nog steeds schemerig alleen nu komt wat licht door de deuropening naar de trap. Eigenlijk wil ik nu wel naar de andere kamers kijken maar de deur naar de werkschuur staat op een kier. Ik hoor daar geplons. Hij is er dus aan het werk en ik moet er niet te lang over doen. In de schuur krijg ik een emmer en een stapel doeken in mijn handen gedrukt. "De zonnepanelen zijn stoffig. Als je eens begint met die een poetsbeurt te geven." Hij loopt voor mij uit via een zijdeur het zonlicht in. Achter een rij struiken staat een veld vol zonnepanelen te bakken. Ik voel de warmte eraf stalen als we tussen de eerste rijen stappen. De panelen hangen in rekken en steken tot net boven mijn hoofd. Tussen elke rij valt nog net wat zon op de grond. Tussen de rijen is de grond stoffig met hier en daar wat groen gras. "Begin hier maar. Gebruik een schone doek per rij." Hij begint weg te lopen. "Hoe maak ik ze schoon?" Vraag ik. "Staan ze niet onder stroom?" "Je begint bovenaan en werkt naar beneden." Hij pakt een van de doeken uit mijn handen en maakt hem nat in de emmer. Dan veegt hij eerst bovenlangs en dan in banen naar beneden. Het water droogt bijna meteen in de panelen. Dan geeft hij mij de doek en knikt. Ik spoel de doek in de emmer en doe wat hem net zag doen. Ik kan net bij de bovenkant als ik op mijn tenen sta. Hij loopt weg nadat ik het paneel schoon heb. Het is goed genoeg denk ik. In de warmte van de volle zon begin ik aan het volgende paneel.
+
+Het is weer vroeg als ik op de schooter stap. Gisteren kon ik uitslapen in het hotel. "De spieren warmen wel weer op" Zegt Miku als ik kreun bij het duwen van de scooter. De middenbok komt met een metalen klonk tegen het frame.  
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
  
 
 
